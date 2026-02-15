@@ -6,9 +6,11 @@ STOP SAYING SIX SEVEN, ITS  2026!! VRO @wednesdayaddamsss who AREE you bro like 
 
 hi im jaskirkper, or jasper for short.. and less silly ok..
 
-millie - @wednesdayaddamsss, is my #1 stalker like max to lucas bro.. she STALKS ME ALL THE TIME..
+millie - @wednesdayaddamsss, is my #1 stalker like max to lucas bro.. she STALKS ME ALL THE TIME.. she's obsessed w/ me
 
 JOKES ASIDE, thats MY duo, DO NOT INTERACT if you're her other duos...
+
+#SPREADMILLIEXJASKIRKPERALLEGATIONS PLEASE
 
 MY catchphrase is "ho ho ho" OK? yeah thats what I thought..
 
