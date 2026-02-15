@@ -25,5 +25,6 @@ im so cool and nonchalant.. ppfftt imagine NOT being kirked out right now?!? lik
 <img width="375" height="36" alt="image" src="https://github.com/user-attachments/assets/eae5cf11-b445-4345-8cf5-7e618b0cf9ef" />
 
 me & el (@wednesdayaddamsss).. #JASVEN
+
 <img width="520" height="580" alt="image" src="https://github.com/user-attachments/assets/e845d693-e4fd-4e5d-8564-a6a2a8d78d8e" />
 
