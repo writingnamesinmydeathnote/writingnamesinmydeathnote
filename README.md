@@ -10,7 +10,7 @@ millie - @wednesdayaddamsss, is my #1 stalker like max to lucas bro.. she STALKS
 
 JOKES ASIDE, thats MY duo, DO NOT INTERACT if you're her other duos...
 
-#SPREADMILLIEXJASKIRKPERALLEGATIONS PLEASE
+#SPREADMILLIEXJASKIRKPERALLEGATIONS PLEASE 👅👅
 
 MY catchphrase is "ho ho ho" OK? yeah thats what I thought..
 
