@@ -9,3 +9,7 @@ millie - @wednesdayaddamsss, is my #1 stalker like max to lucas bro.. she STALKS
 JOKES ASIDE, thats MY duo, DO NOT INTERACT if you're her other duos...
 
 ![Image](https://github.com/user-attachments/assets/d986f1d2-397c-4f78-ad0e-22fdcd5404a4)
+
+im so nonchalant bro trust me OKK?!??
+
+im so cool and nonchalant.. ppfftt imagine NOT being kirked out right now?!? like bro wyd if you aint kirked out..
