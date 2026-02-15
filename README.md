@@ -7,3 +7,5 @@ hi im jaskirkper, or jasper for short.. and less silly ok..
 millie - @wednesdayaddamsss, is my #1 stalker like max to lucas bro.. she STALKS ME ALL THE TIME..
 
 JOKES ASIDE, thats MY duo, DO NOT INTERACT if you're her other duos...
+
+![Image](https://github.com/user-attachments/assets/5eb77db1-8885-46d4-b301-8803fd198ba1)
