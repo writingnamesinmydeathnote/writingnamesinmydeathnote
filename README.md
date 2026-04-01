@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/787b7579-730d-4d2c-9cc8-31a1c00df248)
+ <div align="center"> ![Image](https://github.com/user-attachments/assets/787b7579-730d-4d2c-9cc8-31a1c00df248)
 
 STOP SAYING SIX SEVEN, ITS  2026!!
 
@@ -24,8 +24,10 @@ im so cool and nonchalant.. ppfftt imagine NOT being kirked out right now?!? lik
 
 <img width="375" height="36" alt="image" src="https://github.com/user-attachments/assets/eae5cf11-b445-4345-8cf5-7e618b0cf9ef" />
 
-me & el (@wednesdayaddamsss).. #JASVEN
 
-<img width="520" height="580" alt="image" src="https://github.com/user-attachments/assets/e845d693-e4fd-4e5d-8564-a6a2a8d78d8e" />
+<img width="512" height="32" alt="image" src="https://github.com/user-attachments/assets/1abbd1c9-2cfa-43fe-b5a0-c94d58c6152f" />
 
-https://cdn.discordapp.com/attachments/1425971341412270124/1488911019748098150/IMG_2771.png?ex=69ce7ff1&is=69cd2e71&hm=0d2a38705733db5f74c83d45158a2b0cd1c5f4f0781743ff494b8039caa0da85&<img width="402" height="180" alt="image" src="https://github.com/user-attachments/assets/ce554e99-86c2-4129-a294-ccf29ae259db" />
+
+
+
+<img width="402" height="180" alt="image" src="https://github.com/user-attachments/assets/ce554e99-86c2-4129-a294-ccf29ae259db" />
