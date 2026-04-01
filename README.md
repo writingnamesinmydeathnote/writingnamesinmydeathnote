@@ -24,10 +24,4 @@ im so cool and nonchalant.. ppfftt imagine NOT being kirked out right now?!? lik
 
 <img width="375" height="36" alt="image" src="https://github.com/user-attachments/assets/eae5cf11-b445-4345-8cf5-7e618b0cf9ef" />
 
-
-<img width="512" height="32" alt="image" src="https://github.com/user-attachments/assets/1abbd1c9-2cfa-43fe-b5a0-c94d58c6152f" />
-
-
-
-
 <img width="402" height="180" alt="image" src="https://github.com/user-attachments/assets/ce554e99-86c2-4129-a294-ccf29ae259db" />
