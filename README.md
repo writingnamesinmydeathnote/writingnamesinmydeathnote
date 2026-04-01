@@ -1,4 +1,4 @@
- <div align="center"> ![image](https://github.com/user-attachments/assets/787b7579-730d-4d2c-9cc8-31a1c00df248)
+ㅤ<div align="center">ㅤ![Image](https://github.com/user-attachments/assets/ad81839f-ee66-432c-9911-9b468b97c25d)
 
 STOP SAYING SIX SEVEN, ITS  2026!!
 
