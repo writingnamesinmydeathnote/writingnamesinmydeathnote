@@ -28,3 +28,4 @@ me & el (@wednesdayaddamsss).. #JASVEN
 
 <img width="520" height="580" alt="image" src="https://github.com/user-attachments/assets/e845d693-e4fd-4e5d-8564-a6a2a8d78d8e" />
 
+https://cdn.discordapp.com/attachments/1425971341412270124/1488911019748098150/IMG_2771.png?ex=69ce7ff1&is=69cd2e71&hm=0d2a38705733db5f74c83d45158a2b0cd1c5f4f0781743ff494b8039caa0da85&<img width="402" height="180" alt="image" src="https://github.com/user-attachments/assets/ce554e99-86c2-4129-a294-ccf29ae259db" />
