@@ -8,11 +8,11 @@ VRO @wednesdayaddamsss who AREE you bro like WHO is millie I swear... (guys help
 
 hi im jaskirkper, or jasper for short.. and less silly ok..
 
-millie - @wednesdayaddamsss, is my #1 stalker like el to mike.. she STALKS ME ALL THE TIME.. she's obsessed w/ me
+austin - @wednesdayaddamsss, is my #1 stalker like el to mike.. she STALKS ME ALL THE TIME.. she's obsessed w/ me
 
 JOKES ASIDE, thats MY duo, DO NOT INTERACT if you're her other duos...
 
-#SPREADMILLIEXJASKIRKPERALLEGATIONS PLEASE 👅👅
+#SPREADAUSTINXJASKIRKPERALLEGATIONS PLEASE 👅👅
 
 MY catchphrase is "ho ho ho" OK? yeah thats what I thought..
 
