@@ -2,7 +2,7 @@
 
 STOP SAYING SIX SEVEN, ITS  2026!!
 
-VRO @wednesdayaddamsss who AREE you bro like WHO is millie I swear... (guys help)
+VRO @wednesdayaddamsss who AREE you bro like WHO is austin I swear... (guys help)
 
 <img width="512" height="32" alt="image" src="https://github.com/user-attachments/assets/7a2b1633-917f-4882-a2b5-0d806d3da755" />
 
